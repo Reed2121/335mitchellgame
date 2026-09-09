@@ -1,3 +1,7 @@
 # 335mitchellgame
+Roles
 
-RAYNE IS THE GOAT  REED SUXXXX
+Coders: Jonah, Rayne, Kian and Reed
+Assets Maker: Gunnar
+Story ideas: Elliot, Arjun, Jonah
+Brainstomers: Laven and Arjun.
